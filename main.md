@@ -1,3 +1,0 @@
-**Kaixo Olatz**
-
-Zelan zabiltza? 
